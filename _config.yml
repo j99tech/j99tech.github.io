@@ -1,6 +1,6 @@
-title: "Blog Title"
-author: "Blog Author"
-description: "My blog"
+title: "John's Travel Blog"
+author: "John Pollard"
+description: "Travel and Cycling waffle"
 permalink: /:title/
 lang: "en"
 excerpt_separator: "\n\n\n"
