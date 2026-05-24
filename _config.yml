@@ -23,7 +23,7 @@ navigation:                     # accepts {file, title, url, icon, sidebaricon}
 
 external:                       # accepts {file, title, url, icon, sidebaricon}
   - {title: Strava, icon: strava, url: "https://www.strava.com/athletes/johnpollard"}
-  - {title: Last.fm, icon: square-lastfm, url: "https://www.last.fm/user/klargon"}
+  - {title: Last.fm, icon: music, url: "https://www.last.fm/user/klargon"}
   - {title: Subscribe, icon: rss, url: "/feed.xml"}
 
 comments:
