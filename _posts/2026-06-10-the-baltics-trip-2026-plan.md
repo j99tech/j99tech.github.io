@@ -9,7 +9,7 @@ categories: baltics
 ![World Cup 26](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcJwfu3Ihv8znNmoDWr9j1qsSA7RoK0dUYS0UEMNO9rZOSQuBS8B4U2AWWY-XtwSDuoxeLkitI6Wt0k_P3KJXVGJMwtielsQifk3opo-yWA9FqJ9-jJ_UAgy1rbPzotnXX28sabb00ukoq53ZaLYKcFHICt?key=Bn-mcYfSsf16F1oU3ZUyZA)
 
 Since the 2026 hosts had been announced, I'd planned to go. I knew it wouldn't be cheap, but thought it could be the trip of a lifetime, taking in Canada, the US and Mexico. You have to wait for the schedule to be announced before you can start to plan. Once that was announced, I planned a potential west and east coast option and figured out the logistics. My dad was on board with the plans, so we went through the first couple of lottery stages for tickets. We failed to get anywhere. The main ballot was the first time we could see ticket prices. £300 for the cheapest tickets for some fairly terrible match-ups soon killed our enthusiasm, and we didn't even enter. The US cash-grab has worsened since, with ludicrous prices for transport to the stadia. You vote with your wallet. I hope it's a commercial failure to keep the greed in check.
-
+<!-- excerpt -->
 ## Ok, then maybe just go to the best time zone...
 
 The US west coast still offered the best time zone for watching the games, even if it was on TV, so I planned a road trip along the west coast from San Francisco to LA, then back to the start via some national parks. It seemed feasible, even if we were looking at sharing a room in budget motels. Ultimately, I left it a bit late and the flight prices got high, but it felt like a compromised trip anyway. We could always do the trip again later without the football factor and far more time to get places booked earlier and cheaper.
