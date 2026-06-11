@@ -3,7 +3,8 @@ author: "John Pollard"
 description: "Travel and Cycling waffle"
 permalink: /:title/
 lang: "en"
-excerpt_separator: "\n\n\n"
+#excerpt_separator: "\n\n\n"
+excerpt_separator: "<!-- excerpt -->"
 date_format: "%B %d, %Y"
 
 # Layout
