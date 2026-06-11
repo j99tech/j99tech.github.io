@@ -12,7 +12,7 @@ The benefit of packing light is two-fold - it's cheaper to fly, and it's easier 
 There's plenty of cheap bags that are intended to be the right dimensions for personal item baggage. It's worth bearing in mind that they're usually soft, so can easily exceed a dimension if you're not careful. I picked up a couple of cheap compression straps from AliExpress to help keep mine the right size/shape.
 
 So, what did I pack/take?
-
+<!-- excerpt -->
 ## Tech
 
  - MacBook Air (a heavy start, but needed for footy streaming
