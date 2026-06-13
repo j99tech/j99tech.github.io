@@ -33,7 +33,7 @@ The problem with a lot of private apartment rentals is that people don't use the
 
 ## Food
 
-Unsurprisingly (to anyone that knows me), I kept things cheap. I made sandwiches for lunch and cooked for evening meals. I had a varying combinations of polish sausage, nduja, cheese pierogi, gnocchi, pasta sauce and jalepenos. It's fair to say it's not really an ideally balanced diet, so I'm hoping increased cooking options will help in the next city.
+Unsurprisingly (to anyone that knows me), I kept things cheap. I made sandwiches for lunch and cooked for evening meals. I had a varying combinations of polish sausage, nduja, cheese pierogi, gnocchi, pasta sauce and jalapenos. It's fair to say it's not really an ideally balanced diet, so I'm hoping increased cooking options will help in the next city.
 
 ## Footy
 
