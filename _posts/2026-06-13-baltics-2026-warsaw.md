@@ -12,7 +12,7 @@ The plan was to start the trip in Lithuania, but there's no direct flights there
 Wizzair left a great impression - a modern, clean A321 Neo, and no real care for baggage restrictions (we didn't see anyone's bags being checked). Better than recent experiences with RyanAir. Once we hit Warsaw, we were held on the plane for quite a long time while they allocated some buses. Unfortunately, there was a system failure at border control, making it take around 10 minutes per person. It took a couple of hours from landing to getting into the country proper.
 
 ## Stuff we did
-
+<!-- excerpt -->
 ![Dystopia garden](https://i.ibb.co/wFQW1XRR/ghiblidad.jpg)
 
 Due to the border issues, we had reduced time on the first day, mainly taking the opportunity to get our bearings by walking to the old town. On a lazy wander to Lidl, we checked out the river and took a small detour to the University Library Rooftop Garden, which was excellent - think Ghibli apocalypse or The Last of Us. The old town is an odd place, as it's not actually old. It was flattened in conflict and reconstructed, so it feels a bit like a theme park, although it's still pleasant.
