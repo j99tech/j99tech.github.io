@@ -39,7 +39,7 @@ Unsurprisingly (to anyone that knows me), I kept things cheap. I made sandwiches
 
 ![The TV](https://i.ibb.co/W4ZpXYMW/IMG-5206.jpg)
 
-The World Cup is broadcast free on Polish terrestrial TV, so we just used that. The opener with Mexico vs South Africa was decent enough, mainly thanks to the red card spree. I watched the South Korea vs Czechia game on catchup the next morning, which felt like it could have gone either way. The Canada opener was pretty entertaining, as was the USA one. Qatar v Switzeland was the last match we could realistically watch. It's going to be difficult to catch up from this point due to the travel and the increase in frequency of matches.
+The World Cup is broadcast free on Polish terrestrial TV, so we just used that. The opener with Mexico vs South Africa was decent enough, mainly thanks to the red card spree. I watched the South Korea vs Czechia game on catchup the next morning, which felt like it could have gone either way. The Canada opener was pretty entertaining, as was the USA one. Qatar v Switzerland was the last match we could realistically watch. It's going to be difficult to catch up from this point due to the travel and the increase in frequency of matches.
 
 ## Gaming pick
 
