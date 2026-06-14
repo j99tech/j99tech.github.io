@@ -7,6 +7,8 @@ categories: baltics
 
 ## Getting here
 
+![A321 Neo](https://i.ibb.co/60nDb5r7/IMG-5196.jpg)
+
 The plan was to start the trip in Lithuania, but there's no direct flights there from north/midlands airports. I looked at what other options there were, and saw that WizzAir fly to Warsaw from Leeds Bradford for very little money. So, for a mere £18 each, this was the option we went for. It was an early flight, so we stayed overnight at my sister's in Leeds and handily got a lift to the airport in the morning. 
 
 Wizzair left a great impression - a modern, clean A321 Neo, and no real care for baggage restrictions (we didn't see anyone's bags being checked). Better than recent experiences with RyanAir. Once we hit Warsaw, we were held on the plane for quite a long time while they allocated some buses. Unfortunately, there was a system failure at border control, making it take around 10 minutes per person. It took a couple of hours from landing to getting into the country proper.
