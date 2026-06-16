@@ -51,4 +51,4 @@ About **£30**. Food, bus travel and the bunker museum.
 
 ## Was it good?
 
-We were only really in Kaunas for one full day, but it feels like there's not a huge anount more to see. It's fair to say it's quite a contrast to Warsaw, which feel a lot more pedestrian and tourist friendly. However, it still feels a nice place to be. The shopping street feels like it belongs in a far larger city, so it's quite peculiar to find it in Kaunas.
+We were only really in Kaunas for one full day, but it feels like there's not a huge amount more to see. It's fair to say it's quite a contrast to Warsaw, which feel a lot more pedestrian and tourist friendly. However, it still feels a nice place to be. The shopping street feels like it belongs in a far larger city, so it's quite peculiar to find it in Kaunas.
