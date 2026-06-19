@@ -10,7 +10,7 @@ categories: baltics
 It's a 1-hour train journey from Kaunas to Vilnius, for about a tenner. We were on the 'Pink Soup' carriage, which is basically just very pink inside. Not much to say - it ran to time and was comfortable.
 
 ## Stuff we did
-
+<!-- excerpt -->
 ![Rainy Vilnius](https://i.ibb.co/B2WtMwG1/IMG-5234.jpg)
 
 We had a couple of hours to kill between our arrival and check-in, so took a bit of a wander around the centre and up to the Gediminas Castle for the view over the city. Rain was never too far away, so we also had to shelter a bit. As we headed over to the accommodation (a bit early), we bumped into the owner (we weren't expecting to meet them), who let us in to the flat a bit earlier. After a food shop, we headed to the Uzupis district and 'hill park'. There were a series of metal steps to places of interest, but only one worth taking to the 3 Crosses monument and viewpoint. The rain hit again (impressively heavily at times) and we headed back to the flat.
