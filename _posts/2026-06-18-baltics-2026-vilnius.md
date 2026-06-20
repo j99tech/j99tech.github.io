@@ -25,7 +25,7 @@ After the prison tour, we took a wander over to the more built up area of Vilniu
 
 ![Old town](https://i.ibb.co/nM7Rg8RD/IMG-5243.jpg)
 
-It was handy that we bumped into Edita at the flat, as the second (futon) bed wasn't made up and needed some bedding. I'll be warning every place from now on that we'll be using 2 beds. The flat itself was practically brand new, and felt a bit like a hotel room. Everything was well thought through, and an umbrella came in use on a couple of occasions. I suspect it'll be the best place we stay - great location, very clean and well-specced. The photo is the view from the tiny balcony.
+It was handy that we bumped into Edita at the flat, as the second (futon) bed wasn't made up and needed some bedding. I'll be warning every place from now on that we'll be using 2 beds. [The flat itself](https://www.booking.com/hotel/lt/central-apartment-vilnius-vilnius.en-gb.html) was practically brand new, and felt a bit like a hotel room. Everything was well thought through, and an umbrella came in use on a couple of occasions. I suspect it'll be the best place we stay - great location, very clean and well-specced. The photo is the view from the tiny balcony.
 
 ## Food
 
