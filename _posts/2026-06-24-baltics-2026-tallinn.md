@@ -22,7 +22,7 @@ I didn't want another long walking day for our second full day, so it was either
 
 ![Bedroom view](https://i.ibb.co/RpK5NZbh/IMG-5271.jpg)
 
-We had a top-floor flat in the old town https://www.booking.com/hotel/ee/cosy-apartment-in-old-town.en-gb.html. It's fair to call it compact - the lounge and kitchen are a single room, and the bathroom had a quirky layout to fit a bath and toilet in. However, the bedrooms were still fine, and the place was thoughtfully equipped. At only £60ish per night, it's hard to question the value given the location. It's supposed to be for up to 6 people, but I think 4 would probably be tripping over each other. No reason not to recommend. The photo is the view from the bedroom window.
+We had a [top-floor flat in the old town](https://www.booking.com/hotel/ee/cosy-apartment-in-old-town.en-gb.html). It's fair to call it compact - the lounge and kitchen are a single room, and the bathroom had a quirky layout to fit a bath and toilet in. However, the bedrooms were still fine, and the place was thoughtfully equipped. At only £60ish per night, it's hard to question the value given the location. It's supposed to be for up to 6 people, but I think 4 would probably be tripping over each other. No reason not to recommend. The photo is the view from the bedroom window.
 
 ## Food
 
