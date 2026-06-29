@@ -3,8 +3,6 @@ title:  "Baltics 2026 - Helsinki"
 layout: post
 categories: baltics
 ---
-## Baltics '26 - Helsinki
-
 ## Getting here
 
 ![Finlandia Ferry](https://i.ibb.co/WWz76s4R/IMG-5298.jpg)
