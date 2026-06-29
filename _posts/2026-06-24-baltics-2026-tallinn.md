@@ -4,7 +4,7 @@
 
 ![A220-300](https://i.ibb.co/MmVGFCJ/IMG-5269.jpg)
 
-The trains seem very slow from Riga to Tallinn. I'm not sure my dad was keen on another bus, so that left flying as the only other option. It's only a 50 minute flight, but there's hours of shite around it, so it's similar in duration to getting the bus. Getting to the station could have been smoother - we got caught in a thunderstorm and the first bus simply drove past us. We went to another stop and caught the next one 15 mins later. Riga airport is pretty nice. No security queue at all, so I used the waiting time to do the Riga blog post. The flight is run by Air Baltic and costs around £40 if you book it early. Their cheapest tier only allows a bag depth of 15cm, so you have to upgrade one level to get to Ryanair/Wizzair sizes. The plane was pretty new, half empty and nice and clean. There was even free Starlink wifi.
+The trains seem very slow from Riga to Tallinn. I'm not sure my dad was keen on another bus, so that left flying as the only other option. It's only a 50 minute flight, but there's hours of shite around it, so it's similar in duration to getting the bus. Getting to the airport could have been smoother - we got caught in a thunderstorm and the first bus simply drove past us. We went to another stop and caught the next one 15 mins later. Riga airport is pretty nice. No security queue at all, so I used the waiting time to do the Riga blog post. The flight is run by Air Baltic and costs around £40 if you book it early. Their cheapest tier only allows a bag depth of 15cm, so you have to upgrade one level to get to Ryanair/Wizzair sizes. The plane was pretty new, half empty and nice and clean. There was even free Starlink wifi.
 
 ## Stuff we did
 <!-- excerpt -->
