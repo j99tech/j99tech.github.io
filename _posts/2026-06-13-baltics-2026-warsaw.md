@@ -3,8 +3,6 @@ title:  "Baltics 2026 - Warsaw"
 layout: post
 categories: baltics
 ---
-## Baltics '26 - Warsaw
-
 ## Getting here
 
 ![A321 Neo](https://i.ibb.co/60nDb5r7/IMG-5196.jpg)
