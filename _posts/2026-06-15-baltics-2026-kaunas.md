@@ -3,8 +3,6 @@ title:  "Baltics 2026 - Kaunas"
 layout: post
 categories: baltics
 ---
-## Baltics '26 - Kaunas
-
 ## Getting here
 
 ![Train compartment](https://i.ibb.co/kgZZnPLt/IMG-5226.jpg)
