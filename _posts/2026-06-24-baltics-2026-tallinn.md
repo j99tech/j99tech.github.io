@@ -1,3 +1,8 @@
+---
+title:  "Baltics 2026 - Tallinn"
+layout: post
+categories: baltics
+---
 ## Baltics '26 - Tallinn
 
 ## Getting here
