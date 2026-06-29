@@ -3,8 +3,6 @@ title:  "Baltics 2026 - Packing"
 layout: post
 categories: baltics
 ---
-## Baltics '26 - Packing for the trip
-
 ![Surely nobody cares what I packed](https://i.ibb.co/Kzm4FFGJ/packing.jpg)
 
 The benefit of packing light is two-fold - it's cheaper to fly, and it's easier to lug stuff around if there's less of it. For some people, the thought of going on a trip for over 2 weeks with just the 'personal item' luggage feels impossible. I like the challenge. Of course, to support only taking a couple of changes of clothes, you need to make sure you're picking places to stay with washing machines (or be willing to use a laundrette). Liquids can be a bit of a pain, so be willing to just buy them abroad.
