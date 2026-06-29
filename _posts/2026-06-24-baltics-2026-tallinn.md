@@ -2,7 +2,7 @@
 title:  "Baltics 2026 - Tallinn"
 layout: post
 categories: baltics
---
+---
 ## Getting here
 
 ![A220-300](https://i.ibb.co/MmVGFCJ/IMG-5269.jpg)
