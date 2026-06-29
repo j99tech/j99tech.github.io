@@ -3,8 +3,6 @@ title:  "Baltics 2026 - Vilnius"
 layout: post
 categories: baltics
 ---
-## Baltics '26 - Vilnius
-
 ## Getting here
 
 It's a 1-hour train journey from Kaunas to Vilnius, for about a tenner. We were on the 'Pink Soup' carriage, which is basically just very pink inside. Not much to say - it ran to time and was comfortable.
